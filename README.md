@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Shadow Stalker
+- 👀 I’m interested in pokemon games and fangames
+- 🌱 I’m currently learning programing
+- 😄 Pronouns: ANY
